@@ -12,7 +12,7 @@ __MGM Grand.__ Yes it is kindof "Disney" feeling but you seriously can get off t
 
 ## Activities
 
-__Walk the strip!__ My favorite is to start from the Luxor (Mandalay if you are ambitious) then head north to Caesars Palace (Treasure Island), hitting every hotel casino in between... staying on the west side. Then, another day, do the east side from MGM Grand to the Wynn.
+__Walk the strip!__ My favorite is to start from the Luxor (Mandalay if you are ambitious) then head north to Caesars Palace (Treasure Island if you are ambitious), hitting every hotel casino in between... staying on the west side. Then, another day, do the east side from MGM Grand to the Wynn.
 
 __Go downtown.__ Fremont street. This is closer to the "original" 1950's Elvis Vegas. The "Fremont Street Experience" is a lightshow that is quaint compared to "The Sphere" and predates it by 20 years. Free concerts I think with some top bands. We missed "Presidents of the United States" by a day.
 
@@ -37,20 +37,22 @@ The Italian restaurant in the Canal Shoppes.
 All of my favorite old-school dive places appear to have closed. There was a cafe downstairs at Binions that had a $8 prime rib starting at 11pm that just felt like "old" Vegas you see in the movies.
 
 
-
 ## Places to chill
 
 TODO - that cool penny/nickel slot place next to Venetian
+The benches on the strip by the Bellagio fountain (but grand prix has probably screwed that)
+Any sports book / horse racing lounge at any casino. They are quiet, (usually) clean, and you can bet very little and drink free.
 
 
 ## Gambling
 
 TODO
 
-Table games at Hard Rock were fun... but that is in flux with the move. Planet Hollywood I remember being a lot of fun... blackjack, pai gow poker, roulette.
-Craps at Cosmo were expensive but great group of people.
-MGM Grand is solid.
-Go downtown and gamble to find best odds and games.
+* Table games at Hard Rock were fun... but that is in flux with the move. 
+* Planet Hollywood I remember being a lot of fun... blackjack, pai gow poker, roulette.
+* Craps at Cosmo were expensive but great group of people.
+* MGM Grand is solid (but expensive)
+* Go downtown and gamble to find best odds and games.
 
 
 ## Pools
@@ -78,7 +80,14 @@ __Kayaking the Colorado.__ Just downstream of Hoover Dam is a strech of river th
 __Red Rock Canyon.__ Just scramble/hike on the iconic rocks. Icebox Canyon is a great hike... get there early if it is hot.
 
 
+## Supporting materials
 
+* You have to watch the movie adaptation of Hunter S. Thompson's "Fear and Loathing in Las Vegas" with Johnny Depp. If you like it read the book.  
+* Frank Sinatra. [The Rat Pack: Live At The Sands 1963 (Frank Sinatra, Dean Martin, Sammy Davis Jr.)](https://www.youtube.com/watch?v=ZCvLddZFjzg) or any other live Rat Pack recordings
+* Wayne Newton, Liberace, Tom Jones 
+* Tons of Vegas documentaries out there...
+* MIT Blackjack team ... "Bringing Down the House" is facinating. Haven't read the book or seen the movie but know the story. My dad was a skilled card counter (and lost his ass every time in Vegas).
+* "Mars Attacks" movie (I love the Vegas parts of this :-) 
 
 ## Errata
 
