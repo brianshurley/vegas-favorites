@@ -89,6 +89,12 @@ __Red Rock Canyon.__ Just scramble/hike on the iconic rocks. Icebox Canyon is a 
 * MIT Blackjack team ... "Bringing Down the House" is facinating. Haven't read the book or seen the movie but know the story. My dad was a skilled card counter (and lost his ass every time in Vegas).
 * "Mars Attacks" movie (I love the Vegas parts of this :-) 
 
+## Places and things to avoid
+
+* The strip club on the east end of Fremont street. A friend and I were both roofied by the bartenders there, I made it out alive but my friend lost 10 hours and $1000+ dollars.
+* I remember anything north of Mirage on the strip gets pretty ghetto (like the Strat area). Don't walk there (but honestly downtown 
+* 
+
 ## Errata
 
 I truly think Vegas is meant to be experienced half-drunk from breakfast until bedtime... with a good nap in the afternoon. Start on the plane there, a marg in the cab outta the airport and don't stop until you are back at DIA. It is total and complete sensory overload and this is the only way I think a normal person can adapt. 
