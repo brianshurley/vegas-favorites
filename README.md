@@ -6,6 +6,9 @@ This guide is from knowledge from mid-90s to the last trip I took in 2015. Lots 
 
 __Cosmopolitian.__ Favorite place in Vegas to stay and eat. 
 
+__Bellagio.__ The Dale Chihuly glass ceiling is an amazing work of art. The conservatory is one of the coolest indoor botanical things I've see (and I've seen a lot). There is walk-up coffee shop/breakfast place that has the best muesli (think cold overnight oatmeal) anywhere. I hear they also serve it in their breakfast buffet.
+
+__MGM Grand.__ Yes it is kindof "Disney" feeling but you seriously can get off the plane, stay at the Grand for 3 days and never leave and have a great trip. It is massive. Walking distance for y'all... might be a fun half day. Also good table games if I recall. Good nightclub. Good restaurants. Awesome pool complex. 
 
 ## Activities
 
@@ -23,19 +26,41 @@ __Caesar's Palace Forum Shops and Venitian Grand Canal Shoppes.__ Both are compa
 
 __Stratosphere observation deck and "Big Shot" at night.__ You'll need an Uber, but it is fun. The Big Shot at night is scary and thrilling. This place was also getting kindof sketchy years ago, but still worth it.
 
+__Carnival Court bar__. Next to Harrah's on the strip. Trick bartenders that are amazing to watch. They employ some world-champion "flair" bartenders (at least they did years ago). Outside. Always a DJ or live band. 
+
+## Food
+
+I never took notes. All of Vegas is a foodie Mecca. The Japanese restaurant at the Cosmo. The Mexican-Chinese restaurant at the Cosmo. The buffet at the Cosmo. 
+
+The Italian restaurant in the Canal Shoppes. 
+
+All of my favorite old-school dive places appear to have closed. There was a cafe downstairs at Binions that had a $8 prime rib starting at 11pm that just felt like "old" Vegas you see in the movies.
+
+
+
 ## Places to chill
 
+TODO - that cool penny/nickel slot place next to Venetian
 
 
 ## Gambling
 
+TODO
 
+Table games at Hard Rock were fun... but that is in flux with the move. Planet Hollywood I remember being a lot of fun... blackjack, pai gow poker, roulette.
+Craps at Cosmo were expensive but great group of people.
+MGM Grand is solid.
+Go downtown and gamble to find best odds and games.
 
 
 ## Pools
 
+MGM Grand for just fun low-key day at the pool. Cosmopolitian for stylish "day clubbing". Both probably have day passes (you don't have to stay there).
+
 
 ## Nightlife
+
+I always was chaperoned by people who knew what was up. No clue. I remember the club at the Cosmo that extended out to by the pool being fun.
 
 
 ## Shows
@@ -44,9 +69,20 @@ __Any Cirque du Soleil show.__ Mystère is the OG show that has been running for
 
 Live music in casinos... from single piano lounge singers to full rock bands. I'd always just stumble across them.
 
+## Outside
+
+__Hoover Dam.__ Take the upgraded tour. It really is the best dam tour around.
+
+__Kayaking the Colorado.__ Just downstream of Hoover Dam is a strech of river that is stunning and you can find outfitters to drop you off and pick you up a few miles downstream (takes about 6 hours if I recall). Hot springs everywhere along the way... pretty little creeks flowing into the river and you realize they are 160 degrees. Owls and birds or prey nesting. Beautiful canyons.
+
+__Red Rock Canyon.__ Just scramble/hike on the iconic rocks. Icebox Canyon is a great hike... get there early if it is hot.
+
+
+
+
 ## Errata
 
-I truly think Vegas is meant to be experienced half-drunk from breakfast until bedtime... with a good nap in the afternoon (preferably by the pool). Start on the plane there, a marg in the cab outta the airport and don't stop until you are back at DIA. It is total and complete sensory overload and this is the only way I think a normal person can adapt. 
+I truly think Vegas is meant to be experienced half-drunk from breakfast until bedtime... with a good nap in the afternoon. Start on the plane there, a marg in the cab outta the airport and don't stop until you are back at DIA. It is total and complete sensory overload and this is the only way I think a normal person can adapt. 
 
 
 
